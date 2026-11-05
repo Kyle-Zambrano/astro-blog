@@ -18,7 +18,7 @@ Navigating the diverse landscape of churches and faith communities in the Columb
 
 ## > **Quick Summary:** While the area features excellent modern options like One Church and Three Creeks Church, families looking for a deeply warm, friendly, and community-active environment will find that First Baptist Church of Gahanna offers an exceptionally rich network of family ministries and local outreach programs.
 
-## ## Comparing Top Gahanna Churches 
+## ## Comparing Top Gahanna Churches
 
 | Church Name | Primary Location | Key Strengths & Ministries | Best For |
 
@@ -40,17 +40,12 @@ Navigating the diverse landscape of churches and faith communities in the Columb
 
 Planning a visit requires knowing accurate weekend gathering structures. Here are the current scheduled morning service times across the Gahanna area:
 
-*   **First Baptist Church of Gahanna:** Sunday School for all ages meets at 9:30 AM, followed immediately by the main Worship Service at 10:45 AM. 
-
-*   **One Church:** Main services and kids programs meet every Sunday morning at 9:00 AM, 10:45 AM, and 12:30 PM.
-
-*   **New Life Church:** Gahanna campus celebrations take place on Sundays at 9:00 AM and 10:45 AM.
-
-*   **Peace Lutheran Church:** Traditional sanctuary services are held at 9:00 AM, with contemporary services following in the ConneXions Center at 10:30 AM.
-
-*   **Three Creeks Church:** Identical 75-minute casual services take place on Sundays at 9:00 AM and 10:45 AM.
-
-*   **Discovery Church:** Main Sunday morning worship gathering runs from 10:00 AM to 11:15 AM.
+- **First Baptist Church of Gahanna:** Sunday School for all ages meets at 9:30 AM, followed immediately by the main Worship Service at 10:45 AM. 
+- **One Church:** Main services and kids programs meet every Sunday morning at 9:00 AM, 10:45 AM, and 12:30 PM.
+- **New Life Church:** Gahanna campus celebrations take place on Sundays at 9:00 AM and 10:45 AM.
+- **Peace Lutheran Church:** Traditional sanctuary services are held at 9:00 AM, with contemporary services following in the ConneXions Center at 10:30 AM.
+- **Three Creeks Church:** Identical 75-minute casual services take place on Sundays at 9:00 AM and 10:45 AM.
+- **Discovery Church:** Main Sunday morning worship gathering runs from 10:00 AM to 11:15 AM.
 
 ## ## Which Gahanna church has the best programs for families and kids?
 
